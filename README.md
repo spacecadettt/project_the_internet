@@ -1,0 +1,2 @@
+# project_the_internet
+Boa tarde professor, tive alguns problemas em relação a postagem do arquivo no github, será encaminhado a pasta project_the_internet como material de entrega da atividade e imagens associadas ao problema a mim acometido, obrigado pela atenção.
